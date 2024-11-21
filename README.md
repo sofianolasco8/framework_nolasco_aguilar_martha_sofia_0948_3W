@@ -9,6 +9,12 @@ EJERCICIO 2
 ![image](https://github.com/user-attachments/assets/235afe46-fbc2-4013-963a-8ba54f3e0421)
 ![image](https://github.com/user-attachments/assets/c78bcfa1-6dfa-4961-b13f-81ddd4f285ee)
 
+EJERCICIO 3 
+![image](https://github.com/user-attachments/assets/817f099f-ec7e-4c6d-abb2-aa1d692ea5af)
+![image](https://github.com/user-attachments/assets/01004362-93f1-45b4-8efb-060ca2ba3c12)
+
+
+
 
 
 
